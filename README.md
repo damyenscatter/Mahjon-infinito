@@ -1,0 +1,2 @@
+# Mahjon-infinito
+Diversión infinita
